@@ -67,8 +67,8 @@ ______________________________________
 ╔═════◇
 ║  『••• 𝗩𝗶𝘀𝗶𝘁 𝗙𝗼𝗿 𝗛𝗲𝗹𝗽 •••』
 ║❒ *Owner:* _https://wa.me/923431962180_
-║❒ *WaGroup:* _https://chat.whatsapp.com/Lsah7jfALtW11aDl9EQUCB
-║❒ *WaChannel:* _https://whatsapp.com/channel/0029VabK6Od7YSd0B4SZEa3e
+║❒ *WaGroup:* _https://chat.whatsapp.com/Lsah7jfALtW11aDl9EQUCB_
+║❒ *WaChannel:* _https://whatsapp.com/channel/0029VabK6Od7YSd0B4SZEa3e_
 ╚════════════════════════╝
 _____________________________________
 
